@@ -1,0 +1,1 @@
+# kerangka-proyek-komunitas-baca-alkitab
